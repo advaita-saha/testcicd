@@ -4,3 +4,4 @@ god advaita
 # Bartick Almighty
 # advaita is the only truth
 **allah hu akbar**
+durga puja is everything
